@@ -6,7 +6,12 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me...
-
+-Gosto de futebol
+- Gosto de basquete
+-jogo varios jogos eletronicoss
+-Estudo antonio inglesias
+-estou no primeiro ano do ensino medio
+_trabalho na pizzaria chester
 <!---
 gustavogabriel123/gustavogabriel123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
